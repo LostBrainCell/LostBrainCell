@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, Lost Brain Cell here! 🤗
 
 <!--
 **LostBrainCell/LostBrainCell** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
